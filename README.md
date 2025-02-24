@@ -1,0 +1,1 @@
+bogi pedercina jedna sugava
